@@ -1,4 +1,4 @@
-# 
+# smart DaVinci Resolve for PC | DaVinci Resolve for Windows Transition | slow-motion + video-stabilization offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
